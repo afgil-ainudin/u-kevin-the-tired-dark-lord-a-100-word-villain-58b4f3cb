@@ -1,0 +1,7 @@
+# The Tired Dark Lord: A 100-Word Villain Monologue
+
+A 100-word monologue spoken by Malachar, a dark lord nine hundred years into the job, who greets his fourth hero of the month and stalls for time while the ravens get ready. The tiredness lives in the pauses, the lost thread, and the paperwork — never in a plain statement of weariness.
+
+https://make.fun/badge/u-kevin-the-tired-dark-lord-a-100-word-villain-58b4f3cb.svg
+https://make.fun/badge/u-kevin-the-tired-dark-lord-a-100-word-villain-58b4f3cb/afgil-ainudin/u-kevin-the-tired-dark-lord-a-100-word-villain-58b4f3cb/rank.svg
+https://make.fun/badge/u-kevin-the-tired-dark-lord-a-100-word-villain-58b4f3cb/afgil-ainudin/u-kevin-the-tired-dark-lord-a-100-word-villain-58b4f3cb/reward.svg
